@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aiaicap
 - 👀 I’m interested in learning about SEO
 - 🌱 I’m currently learning SEO
-- 💞️ I’m looking to collaborate on thi website seeingthebrightside<a href="https://seeingthebrightside.com//">.</a>
+- 💞️ I’m looking to collaborate on this website <a href="https://seeingthebrightside.com//">seeingthebrightside.</a>
 
 
 - 📫 How to reach me aiai100@gmail.com
